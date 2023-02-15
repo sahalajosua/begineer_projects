@@ -7,5 +7,5 @@ Relevant YouTube videos:
 
 
 Associated links: 
-LinkedIn [Sahala Josua](https://www.linkedin.com/in/sahalajosuasinaga/) \n
+LinkedIn [Sahala Josua](https://www.linkedin.com/in/sahalajosuasinaga/)\n
 Instagram [@sahalajsinaga](https://www.instagram.com/sahalajsinaga/)
