@@ -6,7 +6,4 @@ Relevant YouTube videos:
 * "Tech With Tim" - [YouTube Channel](https://www.youtube.com/@TechWithTim)
 
 
-Associated links: 
-
-    LinkedIn [Sahala Josua](https://www.linkedin.com/in/sahalajosuasinaga/)
-    Instagram [@sahalajsinaga](https://www.instagram.com/sahalajsinaga/)
+Associated links: LinkedIn [Sahala Josua](https://www.linkedin.com/in/sahalajosuasinaga/); Instagram [@sahalajsinaga](https://www.instagram.com/sahalajsinaga/)
